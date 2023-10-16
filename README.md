@@ -1,6 +1,5 @@
 # Bio
-<sup>Pronouns: He/Him</sup>
-
 Just a *\~Fluffy\~* widdle femboy fox on the internet UwU
 
-I do not actually know how to code, I simply hack stuff together (,,>﹏<,,)
+I write hacky mods for anything that frustrates me enough.
+I do not *actually* know how to code, I simply hack stuff together until it works... (,,>﹏<,,)
